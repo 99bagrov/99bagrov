@@ -1,4 +1,4 @@
-### I'm @99bagrov, I was born in the 90s and i have many interests:
+### About @99bagrov:
 - 🔭 I’m currently working on many Android projects <br>
 - 📫 How to reach me: 99bagrov@gmail.com <br>
 - 💬 For updates on my projects ... <br>
