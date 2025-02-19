@@ -1,5 +1,5 @@
 ### About @99bagrov:
-🔭 I’m currently working on many Android projects <br>
+🔭 I’m currently working on many projects <br>
 📫 How to reach me: 99bagrov@gmail.com <br>
 💬 For updates on my projects ... <br>
 ⚡ I love cats, japanese cars and vintage tech ... <br>
